@@ -20,3 +20,4 @@ Próximos proyectos:
  Siempre con ganas de seguir mejorando y aprendiendo.
 
 📫 Contacto: ortizcolauttio@gmail.com
+In: https://www.linkedin.com/in/octavio-ortiz-colautti-406b392aa?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
